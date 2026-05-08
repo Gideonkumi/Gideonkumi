@@ -57,15 +57,15 @@ Currently learning and building across web development, mobile app development, 
 
 ## 📫 Connect With Me
 
-- Email: plusbrandgh@gmail.com
-- LinkedIn: *(Add your LinkedIn link here)*
-- Portfolio: *(Add your portfolio link here when ready)*
+- Email: gfkumi@gmail.com
+- LinkedIn: https://www.linkedin.com/in/gideon-kumi 
+  
 
 ---
 
 ## ⚡ Fun Fact
 
-I enjoy combining creativity, science, leadership, and technology to solve real-world problems.
+I enjoy combining creativity, health science, leadership, and technology to solve real-world problems.
 
 ---
 
